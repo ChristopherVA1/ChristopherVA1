@@ -5,7 +5,7 @@ Mi nombre es Christopher David Vasquez Altamirano, tengo 21 años y actualmente 
 Contacto:
 -Twitter: https://twitter.com/ChristopherVa_
 -Correo: vasalta36@gmail.com
--Instagram: https://www.instagram.com/Christopher_VA1/
+-Instagram: https://www.instagram.com/christopher_vasq/
 -Facebook: https://web.facebook.com/christopher.vazquezaltamirano.9
 
 Conocimientos en: 
